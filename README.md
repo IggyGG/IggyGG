@@ -2,10 +2,6 @@
 
 - 👀 AI is it.
 
-
-- 📫 How to reach me iggy@movs.ai
-
-
 - 📫 How to reach me iggy@triform.ai
 
 
